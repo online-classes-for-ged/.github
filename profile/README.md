@@ -4,6 +4,9 @@
 
 Looking for the most effective way to prepare for your GED? Online classes for GED give you the flexibility to study at your own pace, access expert instruction, and build confidence before test day. Whether you need help in Math, Science, Social Studies, or Language Arts, online GED classes provide everything you need in one place.
 
+<img width="1344" height="228" alt="image" src="https://github.com/user-attachments/assets/096a3a21-f5e1-461e-812e-287ae7ad4ffc" />
+
+
 ---
 
 ## Why Choose Online Classes for GED?
