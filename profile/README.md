@@ -1,4 +1,4 @@
-# Online Classes for GED – Prepare Anytime, Anywhere
+# Online Classes for GED |  Prepare Anytime, Anywhere
 
 ### Everything You Need to Pass the GED Test
 
