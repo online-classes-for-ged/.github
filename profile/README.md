@@ -14,8 +14,8 @@ Here’s what makes them effective:
 
 | Feature | Benefit |
 |---------|---------|
-| Live & Recorded Lessons | Attend in real-time or watch later, no stress if you miss a session |
-| Expert Instructors | Get guidance from teachers experienced in GED prep |
+| Live & Recorded Lessons > avaliable now access from here | Attend in real-time or watch later, no stress if you miss a session, best quality and in detailed  |
+| Expert Instructors > dedicated team with highly qualified members | Get guidance from teachers experienced in GED prep |
 | 24/7 Access | Study anytime, anywhere – even on your phone |
 | Full Subject Coverage | Math, RLA, Science, and Social Studies lessons included |
 | Practice Tests | Boost confidence with GED-style questions and explanations |
